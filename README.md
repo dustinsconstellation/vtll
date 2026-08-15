@@ -3,7 +3,7 @@ old vtl prof owo
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Besley&size=26&duration=4000&pause=200&color=1C7DCF&center=true&vCenter=true&width=430&lines=WOOOHOOOOOO;+YABADABADEEEEEE;RING+DING+DING+DING!+)](https://git.io/typing-svg)
 
-   [rentry!] ଳ [ata!](https://jamesvr.atabook.org/)
+   rentry ଳ [ata!](https://jamesvr.atabook.org/)
 
   # ICALDOGT990
 
